@@ -1,0 +1,2 @@
+# aptalvesalakdevlericincursor
+cursor free
